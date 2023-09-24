@@ -1,0 +1,2 @@
+# Mavi
+Can sıkıntısı 
